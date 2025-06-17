@@ -1,0 +1,1 @@
+Just some person learning Python ┐(ツ)┌ | neyz_ks
